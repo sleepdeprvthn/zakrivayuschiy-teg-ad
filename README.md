@@ -1,1 +1,1 @@
-https://sleepdeprvthn.github.io/zakrivayushiy_teg/
+https://github.com/sleepdeprvthn/zakrivayuschiy-teg-ad
